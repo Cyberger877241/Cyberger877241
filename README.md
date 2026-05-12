@@ -2,7 +2,7 @@
 
 🎓 3rd Year at University of Maryland, Baltimore County, B.S. in Information Systems (Data Science Concentration)
 
-- Incoming AI/ML Intern @Defense Company
+- Incoming AI/ML Intern
 - Marketing & AI Consultant
 - Content Creator (18k+): https://www.instagram.com/quant_kavin/
 
