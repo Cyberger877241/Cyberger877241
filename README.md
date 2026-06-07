@@ -1,6 +1,6 @@
 ## Hi, I'm Kavin 👋
 
-🎓 3rd Year at University of Maryland, Baltimore County, B.S. in Information Systems (Data Science Concentration)
+🎓 4th Year at University of Maryland, Baltimore County, B.S. in Information Systems (Data Science Concentration)
 
 - AI/ML Intern @Defense Company
 - Marketing & AI Consultant
