@@ -4,7 +4,7 @@
 
 - AI/ML Intern @Defense Company
 - Marketing & AI Consultant
-- Content Creator (23k+): https://www.instagram.com/quant_kavin/
+- Content Creator (27k+): https://www.instagram.com/quant_kavin/
 
 ### 📫 How to Reach Me:
 LinkedIn: www.linkedin.com/in/kavin-manivannan-0b13a6264
