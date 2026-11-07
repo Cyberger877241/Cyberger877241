@@ -8,4 +8,4 @@
 ### 📫 How to Reach Me:
 LinkedIn: www.linkedin.com/in/kavin-manivannan-0b13a6264
 
-### Check out some of my projects (more on the way!)
+### Check out some of my projects. And connect with me if you're in the startup, defense, or blockchain space!
